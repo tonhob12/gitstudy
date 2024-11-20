@@ -1,5 +1,1 @@
-mmmmmmmkkkkkhh
-bomdiaprinceaklkk.py
-isteamadww
-
-yhuiyuyuuyhu
+git and github studies!
